@@ -1,10 +1,10 @@
-                                                                          Abdullah Ahmed Elsharkawy
-                                                                             Ash Sharqiyah, Egypt
-                                                                                  1, Jan 1996
-                                                                                  01009515857
-                                                                        abdullah.elsharqawi@hotmail.com
-                                                                             Marital status: Single
-                                                                          Military statement: Completed
+                                  Abdullah Ahmed Elsharkawy
+                                     Ash Sharqiyah, Egypt
+                                         1, Jan 1996
+                                         01009515857
+                               abdullah.elsharqawi@hotmail.com
+                                   Marital status: Single
+                                Military statement: Completed
 
 Education
 
